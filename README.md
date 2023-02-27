@@ -1,1 +1,1 @@
-# dibyajyotidas.github.io
+# dibyajyotidas.io
